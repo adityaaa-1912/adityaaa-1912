@@ -1,4 +1,4 @@
-# ADITYA KUMAR RAM
+# ADITYA KUMAR 
 
 ## About Me
 
